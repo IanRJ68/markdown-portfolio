@@ -1,0 +1,3 @@
+- *Strong Work Ethic*
+- **Hardworking**
+- *Proactive* **Methodical** *Organised*
